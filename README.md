@@ -2,4 +2,4 @@
 - I'm not your regular software engineer
 - I wont bore you with claims
 - All i do is getting the job done right
-- portfolio ---- razed.vercel.app
+- reach out ---- obafemiadeduro@gmail.com
